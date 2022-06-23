@@ -1,7 +1,7 @@
 # Introduction
 Hello everyone! 
 
-Have you ever heared a song or music while you are watching a movie or anime?
+Have you ever heared a song or music you like while you are watching a movie or anime?
 
 Or you heared a song attracted you so much, then you go to watch the movie?
 
